@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Monsuruay
-- 👀 I’m interested in learning how to bypass victims banks, cars and any site otp.
-- 🌱 I’m currently learning thanks.
+ I’m interested in learning how to bypass or divert victims banks,card otp.
+  🌱 I’m currently learning thanks.
